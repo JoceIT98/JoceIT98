@@ -1,4 +1,4 @@
-# Practicas_Python
+# Soy Joce 👋💞️
 Sobre mi... 👀
 **<p>¿Quién soy?</p>**
 <p>Hola👋 yo soy Jocelyn de Luna,Estudiante del ITPA y curso la carrera de Ingenieria en Tecnologias de la Comunicacion e Informacion (TIC)+</p>
