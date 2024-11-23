@@ -1,7 +1,8 @@
 # Soy Joce 👋💞️
 Sobre mi... 👀
 **<p>¿Quién soy?</p>**
-<p>Hola👋 yo soy Jocelyn de Luna,Estudiante del ITPA y curso la carrera de Ingenieria en Tecnologias de la Comunicacion e Informacion (TIC)+</p>
+<p>Hola👋 yo soy Jocelyn de Luna,Estudiante del ITPA y curso la carrera de Ingenieria en Tecnologias de la Comunicacion e Informacion (TIC)</p>
+
 **<p>Mis gustos<</p>**
 Me gusta leer y comer los tacos de al pastor 💞️, subir al cerro ⚡⚡⚡ para luego llegar y chingarme un cafe con pan despues bajar llegar a mi casa y no hacer nada 😄📫
 
