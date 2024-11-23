@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @JoceIT98
 - 👀 I’m interested in ... gym
-- ![Uploading image.png…]()
+![download](https://github.com/user-attachments/assets/690ca7d0-eaea-45b0-bc48-13d4ee3c2472)
+
 
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
