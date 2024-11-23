@@ -1,15 +1,9 @@
-- 👋 Hi, I’m @JoceIT98
-- 👀 I’m interested in ... gym
-![download](https://github.com/user-attachments/assets/690ca7d0-eaea-45b0-bc48-13d4ee3c2472)
+# Practicas_Python
+Aquí guardare mis trabajos y algunas cosas mas.
+**<p>¿Quién soy?</p>**
+<p>Hola yo soy Jocelyn de Luna,Estudiante del ITPA y curso la carrera de Ingenieria en Tecnologias de la Comunicacion e Informacion (TIC)</p>
+*<p>Mis gustos<</p>*
+Me gusta leer y comer los tacos de al pastor, subir al cerro para luego llegar y chingarme un cafe con pan despues bajar llegar a mi casa y no hacer nada
+![download](https://github.com/user-attachments/assets/f1d3f4fa-f444-41fe-912c-a2435057c0c0)
 
-
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
-
-<!---
-JoceIT98/JoceIT98 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
 --->
