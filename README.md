@@ -1,5 +1,5 @@
 # Practicas_Python
-Sobre mi..
+Sobre mi...👄 :lips:
 
 **<p>QUIÉN SOY Y QUÉ ESTUDIO</p>**
 
