@@ -1,4 +1,4 @@
-# Practicas_Python
+# Welcome to my profile 🙊💅💋💋💋💋💋💋💋💋💋💋💋💋💋💋👀
 Sobre mi...👄 :lips: 👅👅👅👅👅
 
 **<p>QUIÉN SOY Y QUÉ ESTUDIO</p>**
