@@ -1,12 +1,12 @@
 # Welcome to my profile 🙊💅💋💋💋💋💋💋💋💋💋💋💋💋💋💋👀
 Sobre mi...👄 :lips: 👅👅👅👅👅
 
-**<p>QUIÉN SOY Y QUÉ ESTUDIO</p>**
+**<p>¿QUIÉN SOY?</p>**
 
 <p>Hola soy JOCEL ex jugadora de free fire, ya no levanto mira ahora levanto pesas 💋 💋 💋 💋 💋 🙊🙊</p>
 
 
-**<p>QUÉ ME GUSTA</p>**
+**<p>¿QUÉ ME GUSTA?</p>**
 Jugar roblox y ir al cerro 🚶🏃 😎 😎 😎 ✌️✌️🙏
 
 
